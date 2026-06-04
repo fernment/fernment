@@ -9,3 +9,5 @@ I don't roleplay or edate. I'm  hesitant to add friends, I usually have reqs off
 DNI: bigotry(racism, colorism, homophobia, transphobia, misogyny, classism, etc.) pedophiles, zoophiles, proshippers (shipping incestuous or pedophilic pairings), and if you view any of these things in a positive or 'neutral' stance.
 
 this is a WIP!!
+
+![](https://komarev.com/ghpvc/?username=cIemented&abbreviated=true&label=views&style=plastic&color=ffeeab)
