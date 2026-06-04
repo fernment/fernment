@@ -1,4 +1,4 @@
-# clement
+# clemented
 HAPPY PRIDE MONTH TO EVERYONE BUT ESPECIALLY TO MY FELLOW AROACES
 
 Hihi!! pretty new to github so this isn't gonna look the prettiest. I'm clement, and I use any pronouns!!
