@@ -10,4 +10,4 @@ DNI: bigotry(racism, colorism, homophobia, transphobia, misogyny, classism, etc.
 
 this is a WIP!!
 
-![](https://komarev.com/ghpvc/?username=cIemented&abbreviated=true&label=views&style=plastic&color=ffeeab)
+![](https://komarev.com/ghpvc/?username=cIemented&abbreviated=true&label=views&style=plastic&color=ffeeab) <- most of these r me cause im a perfectionist
