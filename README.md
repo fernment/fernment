@@ -12,7 +12,7 @@ DNI: bigotry(racism, colorism, homophobia, transphobia, misogyny, classism, etc.
 check out my strawpage for more info :3 
 
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31bjkcqebwbzndwlbpbpypa3lu7q&cover_image=true&theme=spotify-embed&show_offline=false&background_color=242424&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=6870d9&bar_color_cover=true">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31bjkcqebwbzndwlbpbpypa3lu7q&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31bjkcqebwbzndwlbpbpypa3lu7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
   </a>
 </p>
