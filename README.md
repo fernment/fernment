@@ -9,6 +9,6 @@ I don't do serious roleplay or edate. I'm  hesitant to add friends, I usually ha
 
 DNI: bigotry(racism, colorism, homophobia, transphobia, misogyny, classism, etc.) pedophiles, zoophiles, proshippers (shipping incestuous or pedophilic pairings), and if you view any of these things in a positive or 'neutral' stance.
 
-check out my strawpage for more info :3 
+check out my strawpage for more info (looks best on pc) :3 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjkcqebwbzndwlbpbpypa3lu7q&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjkcqebwbzndwlbpbpypa3lu7q&redirect=true)
