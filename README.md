@@ -11,4 +11,4 @@ DNI: bigotry(racism, colorism, homophobia, transphobia, misogyny, classism, etc.
 
 check out my strawpage for more info (looks best on pc) :3 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjkcqebwbzndwlbpbpypa3lu7q&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjkcqebwbzndwlbpbpypa3lu7q&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjkcqebwbzndwlbpbpypa3lu7q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=5cf5d6&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjkcqebwbzndwlbpbpypa3lu7q&redirect=true)
