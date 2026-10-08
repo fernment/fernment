@@ -1,5 +1,5 @@
 # ferment
-![](https://komarev.com/ghpvc/?username=fernment&abbreviated=true&label=views&style=plastic&color=ffeeab) <- most of these r me cause im a perfectionist
+![](https://komarev.com/ghpvc/?username=fernment&abbreviated=true&label=views&style=plastic&color=ffeeab)  <- most of these r me cause im a perfectionist
 
 Hihi!! pretty new to github so this isn't gonna look the prettiest. I'm fern/ferment, and I use any pronouns!!
 Cuddle & hiding is fine, as well as interactions! I am afk a lot of the time, and socially awkward but I try my best. Honestly, I heavily prefer not to talk, so if u just wanna chill with me please go ahead :3 
