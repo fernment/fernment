@@ -1,13 +1,11 @@
 # ferment
 ![](https://komarev.com/ghpvc/?username=fernment&abbreviated=true&label=views&style=plastic&color=ffeeab)  <- most of these r me cause im a perfectionist
 
-Hihi!! pretty new to github so this isn't gonna look the prettiest. I'm fern/ferment, and I use any pronouns!!
-Cuddle & hiding is fine, as well as interactions! I am afk a lot of the time, and socially awkward but I try my best. Honestly, I heavily prefer not to talk, so if u just wanna chill with me please go ahead :3 
-(also i block freely for any reason. sometimes i get nervous and feel like i did smth stupid so i block someone the same way when u do something embarrassing you feel like you have to kill all witnesses or yourself. i usually unblock after awhile if thats the case)
+Hihi hello it is me. Fern. Think of me as a vampire, I will not do anything unless invited to. This includes talking,, I will rarely ever try to talk to someone first unless we are established friends
+I only rp with friends, and I can get uncomfortable when new people act overly familiar with me. I'm an aroace lesbian and I use mirror pronouns!! (if confused on how to use them, go to my strawpage and gimmick gallery.) DO NOT get me started on how much I hate how society views love because I will never stop talking
+note: I don't add people when I first talk to them, and I block permanently and temporarily for any reason!!
 
-I don't do serious roleplay or edate. I'm  hesitant to add friends, I usually have reqs off, but if wanna add me you can ask!! I usually add friends when I know I'll talk to them often- so keep that in mind please! ^^
-
-DNI: bigotry(racism, colorism, homophobia, transphobia, misogyny, classism, etc.) pedophiles, zoophiles, proshippers (shipping incestuous or pedophilic pairings), and if you view any of these things in a positive or 'neutral' stance.
+Basic DNI criteria, specifics in my strawpage. Just please don't be weird in a way where you'd get the cops called on you in public!! YES we are pixel ponies and YES it is that serious 
 
 check out my strawpage for more info (looks best on pc) :3 
 
